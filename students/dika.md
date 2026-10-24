@@ -2,7 +2,7 @@
 
 Saya adalah seorang mahasiswa UYP, prodi Teknik Informatika
 
-PM: Diani / Putri
+PM: Diani
 
 ## 10 Tahun Yang Akan Datang
 
